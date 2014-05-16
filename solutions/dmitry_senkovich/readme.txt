@@ -1,4 +1,4 @@
-Dmitriy Senkovich
-dmitraysenkovich@gmail.com
-dmitriy.senkovich
-dmitriysenkovich
+Dmitry Senkovich
+dmitrysenkovich@gmail.com
+dmitry.senkovich
+dmitrysenkovich
